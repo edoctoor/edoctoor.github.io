@@ -44,6 +44,11 @@ as they don't have to hire people to tend to the crops and
 because they get a much greater yeald. 
 But shouldn't common sense trump over profit?
 
+It almost feels like money is spent on creating illnesses, and
+then profit is made from selling the product that reduces the 
+symptoms; when will it be obvous that it better to spend our
+money and time making a healthier world?
+
 Currently, there is no way for things to change for the better
 and I have know idea what would be needed for the world to become a better
 place, and hopefully this might be the place that inspires
