@@ -26,7 +26,7 @@ I believe that this old saying still has merit,
 "WE ARE WHAT WE EAT"
 ___
 
-#### DRAFT, BRAINSTORMING, TO INSPIRE ME LATER
+#### DRAFT, BRAINSTORMING, TO INSPIRE ME LATER 
 
 To be continued. . . rough draft of what to come.
 1. ROUNDUP, should we really be putting poisons on our food?
