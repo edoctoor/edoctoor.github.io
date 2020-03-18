@@ -9,17 +9,16 @@ https://www.canada.ca/en/health-canada/services/food-nutrition/legislation-guide
 #### So what does this have to do with having Crohn's you may ask?
 
 I believe that our food and drug system has many major flaws:
-
+	
   1. If a food or drug has been tested for a short time with a small group of people it may prove that 
 it is safe for a short time and for a small group of people; but it may not prove that the food or drug
 can be harmful for a large group of people in the long run. 
-
-Secondly, when something is being tested, 
+  2. Secondly, when something is being tested, 
 it is being paid for by those that want the food or drug tests to succeed. 
 For the tests to be fair, there should be apposing tests that are not controlled nor funded by
-the rich, the powerful, and the wealthy 
+the rich, the powerful, and the wealthy.
 
-    * I believe that the people should have some say in what they are consuming and I
+  * I believe that the people should have some say in what they are consuming and I
     hope that all products, food and drug, will one day have a public database which isn't
     hosted by big money that gives people a way to give their feedback in a professional and 
     precise manner. 
