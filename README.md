@@ -2,6 +2,8 @@
 
 # https://guides.github.com/features/pages/ to continue later
 
+![alt text](filename.jpg)
+
 Some companies are now saying and suing health products because
 they are claiming that they are good for a sore throat for example and
 they are getting sued because only drugs can be good for sore throats.
