@@ -6,8 +6,6 @@
 Which they have created their own laws [Canada's Food and Drugs Act and Regulations](
 https://www.canada.ca/en/health-canada/services/food-nutrition/legislation-guidelines/acts-regulations/canada-food-drugs.html)
 
-#### So what does this have to do with having Crohn's you may ask?
-
 I believe that our food and drug system has many major flaws:
 	
   1. If a food or drug has been tested for a short time with a small group of people it may prove that 
@@ -18,20 +16,28 @@ it is being paid for by those that want the food or drug tests to succeed.
 For the tests to be fair, there should be apposing tests that are not controlled nor funded by
 the rich, the powerful, and the wealthy.
 
-  * I believe that the people should have some say in what they are consuming and I
-    hope that all products, food and drug, will one day have a public database which isn't
-    hosted by big money that gives people a way to give their feedback in a professional and 
-    precise manner. 
+##### I believe that the people should have some say in what they are consuming and I hope that all products, food and drug, will one day have a public database which isn't hosted by big money that gives people a way to give their feedback in a professional and precise manner. 
+Logically, the results and finding from billions of people could be considered undeniable.
 
+#### So what does this have to do with having Crohn's you may ask?
 
+I believe that this old saying still has merit, 
 
-
-
-
-
-
+"WE ARE WHAT WE EAT"
+___
 
 #### DRAFT, BRAINSTORMING, TO INSPIRE ME LATER
+
+To be continued. . . rough draft of what to come.
+1. ROUNDUP, should we really be putting poisons on our food?
+2. PLASTICS, we are told one year not to use plastics with our foods; several years later we can not
+but food that isn't in a plastic container.
+3. FAKE FOODs like peanut butter when the first ingrediant is soy, should it be called soy butter?
+4. If the food industry can make labels Cheese like product that contains very little actual cheese; 
+how can the drug companies sue healh products as if they were drugs? It seems like the drug industries
+are trying to take down the health industry. I believe, it is because the drug industry is starting to 
+see a value in health products and they want to own it.
+
 Some companies are now saying and suing health products because they are claiming that they are good for a sore throat for example and they are getting sued because only drugs can be good for sore throats.
 
 I wonder if anyone could legally put an end to this as this is only to limit products and raise prices of healthy products.
